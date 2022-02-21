@@ -1,1 +1,1 @@
-1* Pentolaccia P2P della Sardegna #liberta Associazione Culturale Bentu Estu
+1* Pentolaccia P2P della Sardegna #libertà Associazione Culturale Bentu Estu
